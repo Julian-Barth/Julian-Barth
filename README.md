@@ -6,11 +6,11 @@ I'm a second-year student at EPFL 🎓, pursuing a degree in Chemistry and Chemi
 
 ### Interests
 
-🌱 Sustainability & Green Chemistry – Exploring solutions for a cleaner future. 🌎♻️
+🌱 Sustainability & Green Chemistry – Exploring solutions for a cleaner future.
 
-⚗️ Chemical Engineering – Bridging chemistry and engineering for real-world applications. 🔬⚙️
+⚗️ Chemical Engineering – Bridging chemistry and engineering for real-world applications. 🔬
 
-🏞 Outdoor Sports – I enjoy hiking ⛰️ and sailing ⛵ whenever I get the chance!
+🏞 Outdoor Sports – I enjoy hiking and sailing whenever I get the chance!
 
 ### What You'll Find Here
 
