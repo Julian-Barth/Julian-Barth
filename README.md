@@ -22,8 +22,7 @@ I'm a second-year student at EPFL 🎓, pursuing a degree in Chemistry and Chemi
 
 ### Let's Connect! 🤝
 
-Feel free to reach out if you're interested in collaborating or discussing anything related to chemistry, engineering, or sustainability! 🚀
-
+Feel free to reach out if you're interested in collaborating or discussing anything related to chemistry, engineering, or sustainability! 🚀 (julian.barth@epfl.ch)
   
 
 
