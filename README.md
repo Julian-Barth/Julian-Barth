@@ -4,6 +4,8 @@
 
 I'm a second-year student at EPFL 🎓, pursuing a degree in Chemistry and Chemical Engineering. Passionate about sustainability and innovation 💡, I'm Vice President of the Carbon Team , where we work on projects related to carbon capture and environmental impact reduction.
 
+🚀 Check out the **[EPFL Carbon Team Website](https://epflcarbonteam.ch/)** for more details!
+
 ### Interests
 
 🌱 Sustainability & Green Chemistry – Exploring solutions for a cleaner future.
