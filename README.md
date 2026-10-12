@@ -4,27 +4,6 @@
 
 ChemEng Student in Switzerland. 
 
-### Interests
-
-🌱 Sustainability & Green Chemistry – Exploring solutions for a cleaner future.
-
-⚗️ Chemical Engineering – Bridging chemistry and engineering for real-world applications. 🔬
-
-🏞 Outdoor Sports – I enjoy hiking and sailing whenever I get the chance!
-
-### What You'll Find Here
-
-📚 Academic and personal projects related to chemistry and engineering.
-
-🌍 Contributions to sustainability-focused initiatives.
-
-🖥️ Experiments with coding for scientific applications.
-
-### Let's Connect! 🤝
-
-Feel free to reach out if you're interested in collaborating or discussing anything related to chemistry, engineering, or sustainability! 🚀 (julian.barth@epfl.ch)
-  
-
 
 
 <!--
